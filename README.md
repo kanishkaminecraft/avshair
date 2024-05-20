@@ -64,4 +64,3 @@ Whether you're conducting research on hair biology, optimizing grooming routines
 </p>
 
 <h3 align="center"><i>THANKYOU</i></h3>
-<h3 align="center"><i>LAST UPDATE OF THIS YEAR 2023</i></h3>
